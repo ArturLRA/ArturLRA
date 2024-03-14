@@ -1,4 +1,4 @@
-### Olá, seja bem vindo ao meu GitHub
+### Opa, seja muito bem vindo ao meu perfil 😄
 
 <div>
 <a href="https://github.com/ArturLRA">
